@@ -12,4 +12,5 @@
 - 8 - 🎬 [I-Platinum'd-Resident-Evil-4..-it-lived-up-to-the-hype](https://github.com/ghm44292-afk/Ourtube565/tree/main/videos/I-Platinum%27d-Resident-Evil-4..-it-lived-up-to-the-hype)
 - 9 - 🎬 [May-12-Hopium-Stream](https://github.com/ghm44292-afk/Ourtube565/tree/main/videos/May-12-Hopium-Stream)
 - 10 - 🎬 [So-About-GTA-6-Trailer-3...-(We-Need-To-Talk)](https://github.com/ghm44292-afk/Ourtube565/tree/main/videos/So-About-GTA-6-Trailer-3...-%28We-Need-To-Talk%29)
-- 11 - 🎬 [WHERE-IS-GTA-6-TRAILER-3？!-｜-Rockstar-News](https://github.com/ghm44292-afk/Ourtube565/tree/main/videos/WHERE-IS-GTA-6-TRAILER-3%EF%BC%9F%21-%EF%BD%9C-Rockstar-News)
+- 11 - 🎬 [TODAY,-TOMORROW-OR-MONDAY？-LET'S-FIND-OUT-TRAILER-3-HOPIUM-STREAM!](https://github.com/ghm44292-afk/Ourtube565/tree/main/videos/TODAY%2C-TOMORROW-OR-MONDAY%EF%BC%9F-LET%27S-FIND-OUT-TRAILER-3-HOPIUM-STREAM%21)
+- 12 - 🎬 [WHERE-IS-GTA-6-TRAILER-3？!-｜-Rockstar-News](https://github.com/ghm44292-afk/Ourtube565/tree/main/videos/WHERE-IS-GTA-6-TRAILER-3%EF%BC%9F%21-%EF%BD%9C-Rockstar-News)
