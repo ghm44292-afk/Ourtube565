@@ -16,7 +16,7 @@
 | Property | Value |
 |----------|-------|
 | **Video Name** | `TODAY,-TOMORROW-OR-MONDAY？-LET'S-FIND-OUT-TRAILER-3-HOPIUM-STREAM!` |
-| **Original Link** | [YouTube Video](https://www.youtube.com/live/tOIVsNfh7ec?pp=0gcJCQQLAYcqIYzv) |
+| **Original Link** | [YouTube Video](https://www.youtube.com/watch?v=tOIVsNfh7ec) |
 | **Total Size** | **11 parts** - **468.31 MB** |
 | **Quality** | **360p (Free)** |
 
